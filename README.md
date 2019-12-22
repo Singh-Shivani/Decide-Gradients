@@ -7,3 +7,8 @@ This page will help you to decide your color preferences for a gradient backgrou
 
 Now, the task is COPY! PASTE! TADAAHH!
 
+And, this is how it looks...
+
+
+
+
